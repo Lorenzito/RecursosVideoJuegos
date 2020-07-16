@@ -17,6 +17,8 @@ www.facebook.com/100022404935671/videos/729818114441680/
 #Sesion 5:
 www.facebook.com/100022404935671/videos/730520537704771/     
 #Sesion 6:
-www.facebook.com/100022404935671/videos/734019010688257/
+www.facebook.com/100022404935671/videos/734019010688257/   
+#Sesion 7:
+https://www.facebook.com/100022404935671/videos/735464917210333/
  
  
