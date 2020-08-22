@@ -21,7 +21,7 @@ www.facebook.com/100022404935671/videos/734019010688257/
 #Sesion 7:
 https://www.facebook.com/100022404935671/videos/735464917210333/       
 #Sesión 8:
-https://drive.google.com/file/d/1L9dM8GQFc8xCPR_q6VLosJE6yhHZ0QuI/view?usp=sharing
+https://drive.google.com/file/d/1L9dM8GQFc8xCPR_q6VLosJE6yhHZ0QuI/view?usp=sharing      
 #Sesión 9:           
 https://drive.google.com/file/d/1y_v-f-wyNSXDpma8w12NY8wsiK0H314k/view?usp=sharing  
 #Última sesión grabada:                   
